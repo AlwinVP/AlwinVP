@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AlwinVP
+- Iam an Engineering student in Government Engineering college Kozhikode. 
+- Iam studying in the domain Compuiter Science and Design.
+- Iam an enthusiast in the Web programming and App Development.
+- 
